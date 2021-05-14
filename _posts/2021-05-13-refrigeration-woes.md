@@ -26,7 +26,7 @@ The question was: could our bad batteries be affecting our refrigerators ability
 
 That evening I called most of the local auto parts stores in town to see if they carried deep cycle marine AGM batteries, group 31. Every single one told me they didn't have either the battery group or the chemistry I needed. This meant if we did in fact have bad batteries it would be very difficult to find replacements in Georgetown. Myrtle Beach, further north, had more options but that was still several days away. We would have to find a short term solution like a cooler to get by for a week.
 
-On Wednesday morning we pulled in to the marina without issue. The dock hand got us tied off efficiently and went away to start doing the paperwork. We finished tying off and immediately plugged in the shore power to test things. I went in to sign our marina paperwork. After asking the dock hand about options he told me about a local auto parts store with access to a local warehouse that might carry what we needed. They even delivered.
+On Wednesday morning we pulled in to the marina without issue. We finished tying off and immediately plugged in the shore power to test things. While the charger was doing its thing we asked the dock hand about options. He told us about a local auto parts store with access to a nearby warehouse that might carry what we needed. They even delivered.
 
 Back at the boat I called the auto parts store to find out that, yes, they had the batteries we needed and yes, they could have them at our boat the next day. Before placing the order we checked our fridge. It was working. Well. Things were cold. We ordered the batteries.
 
